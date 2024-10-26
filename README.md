@@ -6,7 +6,7 @@
 
 ![*☆*](https://xaoiui.neocities.org/Limestar.gif) I’m currently learning intermediate JavaScript and finishing html
 
-![*☆*](https://xaoiui.neocities.org/Limestar.gif) I kinda do anything really. PLEASE HMU IF YOU THING ITS SOMETHING ID FIND COOL
+![*☆*](https://xaoiui.neocities.org/Limestar.gif) I kinda do anything really. PLEASE HMU IF YOU THINK ITS SOMETHING ID FIND COOL
 
 ![*☆*](https://xaoiui.neocities.org/Limestar.gif) You can reach me on discird at xaoiui or twitter at DemonXao!! ^u^
 
