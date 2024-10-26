@@ -1,11 +1,11 @@
 *☆* *♡* *☆* *♡* *☆* *♡* *☆* *♡* *☆* *♡* *☆* *♡*
 
 ```
-- Hi, I’m Xaoiui!! :D (xao for short)
-- I’m interested in drawing and obviously coding
-- I’m currently learning intermediate JavaScript and finishing html
-- I kinda do anything really. PLEASE HMU IF YOU THING ITS SOMETHING ID FIND COOL
-- You can reach me on discird at xaoiui or twitter at DemonXao!! ^u^
+![*☆*](https://xaoiui.neocities.org/Limestar.gif) Hi, I’m Xaoiui!! :D (xao for short)
+![*☆*](https://xaoiui.neocities.org/Limestar.gif) I’m interested in drawing and obviously coding
+![*☆*](https://xaoiui.neocities.org/Limestar.gif) I’m currently learning intermediate JavaScript and finishing html
+![*☆*](https://xaoiui.neocities.org/Limestar.gif) I kinda do anything really. PLEASE HMU IF YOU THING ITS SOMETHING ID FIND COOL
+![*☆*](https://xaoiui.neocities.org/Limestar.gif) You can reach me on discird at xaoiui or twitter at DemonXao!! ^u^
 ```
 
 <!---
