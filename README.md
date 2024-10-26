@@ -1,4 +1,5 @@
-。*☆*。*☆*。*☆*。*☆*。*☆*。*☆*。
+*☆**☆**☆**☆**☆**☆*
+
 *☆* Hi, I’m Xaoiui(xao for short)
 *☆* I’m interested in drawing and obviously coding
 *☆* I’m currently learning intermediate JavaScript and finishing html
@@ -11,4 +12,5 @@ You can click the Preview link to take a look at your changes.
 --->
 OOGA BOOGA!!!!
 -Xao
-。*☆*。*☆*。*☆*。*☆*。*☆*。*☆*。
+
+*☆**☆**☆**☆**☆**☆*
