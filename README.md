@@ -8,7 +8,7 @@
 
 ![*☆*](https://xaoiui.neocities.org/Limestar.gif) I kinda do anything really. PLEASE HMU IF YOU THINK ITS SOMETHING ID FIND COOL
 
-![*☆*](https://xaoiui.neocities.org/Limestar.gif) You can reach me on discird at xaoiui or twitter at DemonXao!! ^u^
+![*☆*](https://xaoiui.neocities.org/Limestar.gif) You can reach me on discord at xaoiui or twitter at DemonXao!! ^u^
 
 <!---
 0p3rat0r666/0p3rat0r666 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
